@@ -8,9 +8,9 @@
 
 ### EDUCATION
 
-_**Oles Honchar Dnipropetrovsk National University** 2015-
+_**Oles Honchar Dnipropetrovsk National University** 2015_
 
--Specialist in Applied Physics, Engineer of Information and Telecommunication Systems_
+_Specialist in Applied Physics, Engineer of Information and Telecommunication Systems_
 
 ### SKILLS 
 
