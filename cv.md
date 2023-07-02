@@ -4,7 +4,7 @@
 
 _**Lodz Poland**_
 _Phone: **+48507785731**_
-_GidHub: **Lisabay**_
+_GidHub: **[Lisabay] (https://github.com/lisabay)**_
 
 ### EDUCATION
 
