@@ -2,15 +2,15 @@
 
 ### CONTACT
 
-* _**Lodz Poland**_
+* _**Lodz, Poland**_
 * _Phone: **+48507785731**_
 * _GidHub:_ [Lisabay](https://github.com/lisabay)
 
 ### EDUCATION
 
-_**Oles Honchar Dnipropetrovsk National University** 2015
+_**Oles Honchar Dnipropetrovsk National University** 2015-
 
-Specialist in Applied Physics, Engineer of Information and Telecommunication Systems_
+-Specialist in Applied Physics, Engineer of Information and Telecommunication Systems_
 
 ### SKILLS 
 
